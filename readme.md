@@ -1,1 +1,1 @@
-# obrigado pela oportunidade!
+# obrigado pela oportunidade de participar deste processo seletivo!
